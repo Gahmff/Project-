@@ -1,1 +1,1 @@
-# Project-
+# 3D printed school model-
